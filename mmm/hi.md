@@ -1,4 +1,1 @@
-# hi
-# sidee layahay?
-yaa
-maxay
+xog cusub "somali -language"
